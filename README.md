@@ -12,4 +12,4 @@ On your phone. Your Gemini key and a cached copy of your data are stored encrypt
 
 No tracking. The app does not use advertising, analytics or tracking.
 
-Contact: [your support email]
+Contact: [connectgashok@gmail.com]
